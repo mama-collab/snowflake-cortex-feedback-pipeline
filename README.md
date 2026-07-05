@@ -175,8 +175,8 @@ This is the kind of pipeline I build for enterprise clients
 in financial services, pharma, and retail.
 
 - 📅 [Book a free 15-min call](https://calendly.com/mama-priyadarsini/15-minute-business-strategy-call)
-- 🔗 [LinkedIn](https://linkedin.com/in/mpriyadarsini)
-- 🎥 [YouTube — Compounding Mind](https://youtube.com/@compoundingmind)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/m-priyadarsini-00427141/)
+- 🎥 [YouTube — Compounding Mind](https://www.youtube.com/@compoundingmind)
 
 ---
 
